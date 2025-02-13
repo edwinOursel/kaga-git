@@ -10,3 +10,10 @@ inversion de la causalité !
 ajout de champ de photons non-locaux
 
 que la lumière soit !
+
+créa    tion
+
+... nouv            ...
+
+...nivers .
+
