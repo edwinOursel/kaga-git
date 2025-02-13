@@ -7,3 +7,4 @@ on rajoute des bouts
 
 inversion de la causalité ?
 
+ajout de champ de photons non-locaux
