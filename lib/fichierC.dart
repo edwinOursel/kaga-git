@@ -1,1 +1,1 @@
-une feature 3 rondement menée
+une feature 3: rondement menée
