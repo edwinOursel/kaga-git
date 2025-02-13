@@ -5,3 +5,5 @@ les fractales, c'est le nec + ultra
 mais les ensemble de cantor, c'est la mort
 on rajoute des bouts
 
+inversion de la causalité ?
+
