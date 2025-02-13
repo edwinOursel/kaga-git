@@ -5,6 +5,8 @@ les fractales, c'est le nec + ultra
 mais les ensemble de cantor, c'est la mort
 on rajoute des bouts
 
-inversion de la causalité ?
+inversion de la causalité !
 
 ajout de champ de photons non-locaux
+
+que la lumière soit !
